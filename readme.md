@@ -1,0 +1,10 @@
+# IIIIII
+## OOOOO
+# TTTTTT
+###### 222222# IIIIII
+## OOOOO
+# TTTTTT
+###### 222222# IIIIII
+## OOOOO
+# TTTTTT
+###### 222222
